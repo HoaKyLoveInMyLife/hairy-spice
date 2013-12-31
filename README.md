@@ -1,4 +1,0 @@
-hairy-spice
-===========
-
-Viet nam
